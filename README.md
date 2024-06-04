@@ -1,7 +1,7 @@
 ![38d5e70d9da8c2f27040a5809f7accd1](https://github.com/DRRETROO/DRRETROO/assets/158447058/1815c4c7-f51a-4f38-8af2-75e4141d0fca)
 
 
-🔴 yo yo ! names remy / dr retro / gojo !! - i use she/her prns mainly but anything else is fine by me as it doesnt affect me anyway
+🔴 yo yo ! names remy / dr retro / gojo / hyperlaser !! - i use she/her prns mainly but anything else is fine by me as it doesnt affect me anyway
 
 
 🔵 blah blah blah blah I LOVE MY BF AHHHHH!!!!
